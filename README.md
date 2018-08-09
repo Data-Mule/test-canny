@@ -7,5 +7,5 @@ This is a list of reasons I love Canny:
 * His nose is **soft**
 * He has ***character***
 
-You can find out more about Canny [here](https://www.careaboutlaminitis.org.uk)
+You can find out more about Canny [here](http://www.careaboutlaminitis.org.uk)
 
